@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Yağız.
 - 👀 I’m interested in web development.
 - 🌱 I’m currently learning web development.
-- 📫 How to reach me bluesoul.cloud2@gmail.com
+- 📫 How to reach me yzhosgel@gmail.com
